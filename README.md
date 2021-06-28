@@ -1,9 +1,9 @@
 ## Une bien belle bien  histoire by thibaut grégorito and cie 
 
-Aprés une journée de dur labeur nos joyeux lurons dédiciderent de sortir se prendre quelques pintes goutues.
+Aprés une journée de dur labeur nos joyeux lurons dédicidèrent de sortir se prendre quelques pintes goutues.
 
 Nous irons donc au carré s'exlama derrick. Ni une ni deux Alberto lui retourna une belle mandale et dit énervé :" on dit dans le carré abruti!"
-Suite à cette altercattion chacun reparti de son coté non sans rancune et....
+Suite à cette altercation chacun reparti de son coté non sans rancune et....
 
 ce n'est que plus tard qu'ils décidèrent tout de même de se rejoindre au/dans le carré mettant de côté leurs différents pour passer une agréable soirée.
 
